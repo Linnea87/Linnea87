@@ -113,6 +113,4 @@ I enjoy working in dynamic teams and contributing with my strengths in **communi
 
 ## 📫 Contact  
 
-## 📫 Contact  
-
 - 💼 [LinkedIn](https://www.linkedin.com/in/linneaternevik)
